@@ -1,3 +1,4 @@
 # theberid
 
-![alt text](https://imgur.com/Y1vzyJl)
+![alt text](https://i.imgur.com/Y1vzyJl.jpg)
+ 
